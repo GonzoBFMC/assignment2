@@ -3,6 +3,6 @@
 ### Rised: Irrelevant
 ### Likes: Family
 ## No Pity
-
+![Death](
 [My Thoughts](https:www//youtube.com/watch?v=RtHt_Id-N2w)
 [Home](https://GonzoBFMC.github.io)
