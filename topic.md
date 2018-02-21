@@ -1,5 +1,5 @@
 # Virtural Reality Torture 
-## The perfect method 
+## *The perfect method* 
 
 ### Imagine you're in a small room. The walls are covered in geometric patterns that literally hurt to look at. In the corner are a polygonal bed and bench canted at angles that make them impossible to sit on. The floor is cluttered with a gridwork of bricks rendering it impossible to walk any direction but forward.
 
