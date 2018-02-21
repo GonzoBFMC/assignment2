@@ -13,4 +13,6 @@
 
 ![VR2](VR 2.jpg)
 
+[Education](http://evilciaandnsa.com/?p=77)
+
 [home](https://GonzoBFMC.github.io)
