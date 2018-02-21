@@ -11,4 +11,6 @@
 
 ### To be clear, there's no evidence of VR being used to press people for information the way sound, rectal feeding, and other horrors were applied by the CIA in its secret prisons. But where the imagination goes, reality has often followed. And when it comes to torture, a simulation can be just as impactful as the real thing. "In mental health, perceptions are reality," says Dr. Asher Aladjem of Bellevue's Program for Survivors of Torture, "so if you think you are being tortured, you are being tortured."
 
+![VR2](VR 2.jpg)
+
 [home](https://GonzoBFMC.github.io)
