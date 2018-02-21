@@ -4,5 +4,5 @@
 ### Likes: Family
 ## No Pity
 ![Death](touture.jpg)
-[My Thoughts](https:www//youtube.com/watch?v=RtHt_Id-N2w)
+[My Thoughts](https://www.youtube.com/watch?v=J_rn-KTT0GU)
 [Home](https://GonzoBFMC.github.io)
