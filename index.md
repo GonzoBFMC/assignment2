@@ -1,7 +1,7 @@
 # Death is only the beginning
 ![Bad Day](th.jpg)
 ### More about me
-#### I am a dedicated Father that Loves his family with every peice of his heart and soul. I recognize that thee is a sinner and acknowledge thee fate for whereeisthet this soul shall lay. I ask thee to never ill repute my blood for I have no compassion nor humanitarianism for what I will do!
+#### “Kill every male among the little ones, and kill every woman who has known man intimately. But all the girls who have not known man intimately, spare for yourselves.” Numbers 31: 17-18
 [Bio](GonzoBFMC.github.io/bio.html)
-### Crazy life
+### Gonzo's Life
 [Topic](GonzoBFMC.github.io/topic.html)
