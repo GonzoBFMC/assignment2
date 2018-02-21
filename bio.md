@@ -1,8 +1,8 @@
 # Eternally Deranged
-### Arrival date: 2 Dec 1974
-### Rised: irrelevant
+### Arrival Date: 2 Dec 1974
+### Rised: Irrelevant
 ### Likes: Family
 ## No Pity
 
-[My thoughts](https:www//youtube.com/wathch?v=nhYTREK5VSo)
-[home](https://GonzoBFMC.github.io)
+[My Thoughts](https:www//youtube.com/wathch?v=nhYTREK5VSo)
+[Home](https://GonzoBFMC.github.io)
