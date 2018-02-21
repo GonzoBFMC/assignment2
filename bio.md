@@ -1,4 +1,4 @@
-# Eternal Deranged
+# Eternally Deranged
 ### Arival date *2 Dec 1974*
 ### Rised *irrelevant*
 ### Likes *Family*
