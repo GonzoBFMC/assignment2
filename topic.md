@@ -1,7 +1,7 @@
 # **Virtural Reality Torture** 
 ## *The perfect method* 
 ![VR1](VR 1.jpg)
-### Imagine if there was a way to conduct torture on someone without leaving one mark on the body. Virtural Reality is the currently being used to heightened the experience and give a person an euforia of being in a videos game. Image there is a walls covered in geometric patterns that literally hurt to look at. In the corner are a polygonal bed and bench canted at angles that make them impossible to sit on. The floor is cluttered with a gridwork of bricks rendering it impossible to walk any direction but forward.
+### Imagine if there was a way to conduct torture on someone without leaving one mark on their body. Virtural Reality is the currently being used to heightened the experience and give a person an euforia of being in a videos game. Image there is a walls covered in geometric patterns that literally hurt to look at. In the corner are a polygonal bed and bench canted at angles that make them impossible to sit on. The floor is cluttered with a gridwork of bricks rendering it impossible to walk any direction but forward.
 
 ### It sounds like a computer model of the exact opposite of Fung Shui, but it's quite real. Built by anarchists fighting in the Spanish Civil War, the so-called psychotechnic torture cell used turn-of-the-century perceptual concepts in abstract art to maximize sensory disruption, subverting prisoners' senses to drive them mad.
 
