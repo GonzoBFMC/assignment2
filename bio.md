@@ -4,5 +4,5 @@
 ### Likes: Family
 ## No Pity
 
-[My Thoughts](https:www//youtube.com/wathch?v=nhYTREK5VSo)
+[My Thoughts](https:www//youtube.com/watch?v=RtHt_Id-N2w))
 [Home](https://GonzoBFMC.github.io)
